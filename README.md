@@ -2,7 +2,7 @@
 <img src="https://komarev.com/ghpvc/?username=twlndark&style=flat&label=Lost+Souls&color=lightgrey&base=300">
 </p>
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Atma&size=15&pause=1000&color=FFFFFF&center=true&vCenter=true&multiline=true&repeat=false&width=435&lines=Now+I+have+neither+happiness+nor+unhappiness.;Everything+passes" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Titre&size=15&pause=1000&color=FFFFFF&center=true&vCenter=true&multiline=true&repeat=false&width=435&lines=Now+I+have+neither+happiness+nor+unhappiness.;Everything+passes" alt="Typing SVG" /></a>
 </p>
 <p align="center">
 </p>
