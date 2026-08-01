@@ -1,7 +1,4 @@
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=twlndark&style=flat&label=Lost+Souls&color=lightgrey&base=300">
-</p>
-<p align="center">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cossette+Titre&pause=1000&color=F7F7F7&multiline=true&repeat=false&width=435&lines=Now+I+have+neither+happiness+nor+unhappiness;Everything+passes" alt="Typing SVG" /></a>
   <br>
 </p>
