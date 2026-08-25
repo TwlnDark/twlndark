@@ -6,13 +6,11 @@
 
 </td>
 <td width="50%" valign="top" align="justify">
-  
 Eleanore⠀13years old
 <br>
 Non-sharing Gachikoi
 <br>
 Level 3 Autism⠀PNOS
-
 </td>
 </tr>
 </table>
