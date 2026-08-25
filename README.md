@@ -11,7 +11,7 @@ Eleanore⠀✦⠀13years
 <br>
 Non-sharing Gachikoi
 <br>
-AuDHD & Psychosis
+AuDHD⠀&⠀Psychosis
 
 
 
