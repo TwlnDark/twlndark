@@ -6,11 +6,11 @@
 
 </td>
 <td width="50%" valign="top" align="justify">
-Eleanore⠀13years old
+Eleanore⠀13years
 <br>
 Non-sharing Gachikoi
 <br>
-Level 3 Autism⠀PNOS
+Level 3 Autism
 </td>
 </tr>
 </table>
