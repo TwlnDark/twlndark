@@ -13,8 +13,6 @@ Non-sharing Gachikoi
 <br>
 AuDHD⠀&⠀Psychosis
 
-
-
 </td>
 </tr>
 </table>
