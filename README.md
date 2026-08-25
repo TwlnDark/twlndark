@@ -11,7 +11,7 @@ Eleanore⠀13years old
 <br>
 Non-sharing Gachikoi
 <br>
-AuDHD⠀&⠀Psychosis
+Level 3 Autism⠀PNOS
 
 </td>
 </tr>
