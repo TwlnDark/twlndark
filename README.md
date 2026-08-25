@@ -10,9 +10,9 @@
 <br>
 ⠀⠀Eleanore⠀✦⠀13years
 <br>
-⠀⠀AuDHD & Psychotic
+⠀⠀Non-sharing Gachikoi
 <br>
-⠀⠀Nonsharing Gachikoi
+⠀⠀AuDHD & Psychotic
 
 </td>
 </tr>
