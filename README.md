@@ -10,7 +10,7 @@ Eleanore⠀13years old
 <br>
 Non-sharing Gachikoi
 <br>
-Level 3 Autism⠀PNOS
+Level 3 Autism Spec
 </td>
 </tr>
 </table>
