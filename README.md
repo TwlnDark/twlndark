@@ -8,7 +8,7 @@
 <td width="50%" valign="top" align="justify">
 Eleanore⠀13years
 <br>
-Non-sharing Gachikoi
+Non-sharing Riako
 <br>
 Level 3 Autism
 </td>
