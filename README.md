@@ -8,9 +8,9 @@
 <td width="55%" valign="top" align="justify">
 Eleanore⠀13years old
 <br>
-Non-sharing Gachikoi
+Level 3 ASD & PNOS
 <br>
-Level 3 Autism Spec
+Non-sharing Gachikoi
 </td>
 </tr>
 </table>
