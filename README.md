@@ -7,7 +7,7 @@
 </td>
 <td width="45%" valign="top" align="justify">
   
-Eleanore⠀✦⠀13years
+Eleanore⠀13years old
 <br>
 Non-sharing Gachikoi
 <br>
