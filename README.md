@@ -6,10 +6,11 @@
 </td>
     <td width="60%">
 
-Pony Town Information
+General Information
 <br>
-- C+H freely always
 - Whisper to interact
+- I'm a mix of level 2-3 Autism 
+- C+H freely always
 
 </td>
   </tr>
