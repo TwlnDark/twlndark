@@ -9,7 +9,6 @@
 General Information
 <br>
 - Whisper to interact
-- Interact with care
 - C+H freely always
 
 </td>
