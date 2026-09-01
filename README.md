@@ -9,7 +9,7 @@
 General Information
 <br>
 - Whisper to interact
-- Fluctuating level 2-3 Autism 
+- Interact with care
 - C+H freely always
 
 </td>
